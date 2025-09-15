@@ -14,7 +14,7 @@ Spécialisé dans l'analyse de données, l'optimisation industrielle.
 
 ## 📫 Contact
 - Email : [sengel.bruno@gmail.com](mailto:sengel.bruno@gmail.com)  
-- LinkedIn : [Mon profil LinkedIn](https://www.linkedin.com/in/brunosengel
+- LinkedIn : [Mon profil LinkedIn](https://www.linkedin.com/in/bruno-sengel-78aa1b91/)
 
 ---
 
